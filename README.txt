@@ -39,4 +39,4 @@ Pro Tips advanced users
    Bugreports and other requests can be submited to joik2ww@gmail.com
    I answer when I wish, will, want or can. 
 
-   If you love it consider donating for coffee and PC parts https://paypal.me/joik2ww
+   If you love it consider donating for coffee and PC parts https://paypal.me/joik2ww or https://buymeacoffee.com/joik2wwf
